@@ -1,2 +1,2 @@
-Hi everyone!
-# nurjanfarzizada
+Hi everyone! I'm Nurjan. 
+
